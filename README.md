@@ -1,8 +1,8 @@
-## Hi there 👋
+# Hi there, Andrea Zaliani here 👋
 
 
 
-
+## What I am doing
 
 - 🔭 I’m currently working on how to fruitful spend time with others or give them my time
 - 🌱 I’m currently learning several things: piano playing, South American dance, writing blogs.
